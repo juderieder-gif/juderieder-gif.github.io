@@ -1,1 +1,0 @@
-# juderieder-gif.github.io
